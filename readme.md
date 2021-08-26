@@ -1,0 +1,1 @@
+# Google'ın 1998 tarihli ana sayfası
